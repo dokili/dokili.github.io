@@ -4,3 +4,5 @@ Meister Eders liebster Muckl. Rotes Haar, Schabernack im Kopf, immer am Reimen, 
 * unbekümmert 
 * frech
 * fröhlich
+> Alles was sich reimt ist gut.
+
